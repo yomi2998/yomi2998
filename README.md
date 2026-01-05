@@ -1,4 +1,4 @@
-## Hi there 👋
+## wazzup beijing 😎, we bing chiling 🥶🥶
 
 <!--
 **yomi2998/yomi2998** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
